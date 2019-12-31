@@ -21,4 +21,9 @@ Entre ellos se creen que están las llaves a:
 + Consergería
 
 
+##### Otras teorías
+
+Otras teorias menos conocidas, pero de las cuáles se han encontrado escritos en fragmentos de diarios o doumentos antiguos de fiende que la Cámara de Protosacoma no está en un único lugar. Esta teoría defiende que la cámara es un conjunto de habitáculos repartidos por el subsuelo de Sacoma. La lógica es que un conocimineto de tal cuantía no debería almacenarse junto, por miedo a robos esporádicos.
+
+
 
